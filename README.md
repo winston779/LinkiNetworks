@@ -1,6 +1,6 @@
 # Linki Networks机场官网地址
 
-最新地址：[linki-1.com](https://my.faster.pw/#/register?code=UceXmdjv)
+最新地址：[linki-1.com](https://0acd04cd381dea58.cdn.jiashule.com/#/register?code=UceXmdjv)
 
 ## Linki Networks介绍
 
