@@ -1,6 +1,6 @@
 # Linki Networks机场官网地址
 
-最新地址：[linki-1.com](https://466f76acf9e30257.cdn.jiashule.com/#/register?code=UceXmdjv)
+最新地址：[linki-1.com](https://linkiapi.azure-api.net/#/register?code=UceXmdjv)
 
 ## Linki Networks介绍
 
